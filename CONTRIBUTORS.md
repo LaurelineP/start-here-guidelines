@@ -584,3 +584,34 @@
 
 - [@Joshf225](https://github.com/Joshf225)
 
+- [@AndresContreras1034](https://github.com/AndresContreras1034)
+
+- [@DevGoyal07](https://github.com/DevGoyal07)
+
+- [@TheMShahid](https://github.com/TheMShahid)
+
+- [@Jamlick126](https://github.com/Jamlick126)
+
+- [@jansonr12](https://github.com/jansonr12)
+
+- [@pratyushkr9420](https://github.com/pratyushkr9420)
+
+- [@dimuthadithya](https://github.com/dimuthadithya)
+
+- [@Amartya-007](https://github.com/Amartya-007)
+
+- [@lucasmp-coder](https://github.com/lucasmp-coder)
+
+- [@lucapantis](https://github.com/lucapantis)
+
+- [@artem-polozov](https://github.com/artem-polozov)
+
+- [@Otaku95](https://github.com/Otaku95)
+
+- [@fizhassolsamor](https://github.com/fizhassolsamor)
+
+- [@KundanDG52](https://github.com/KundanDG52)
+
+- [@robertduke123](https://github.com/robertduke123)
+
+
